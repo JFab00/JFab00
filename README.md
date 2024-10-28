@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JFab00
-- 👀 I’m interested in Manga, Gaming, Drwaing and Programming obvs
+- 👀 I’m interested in Manga, Gaming, Drawing and Coding obvs
 - 🌱 I’m currently learning too many things
 
 <!---
